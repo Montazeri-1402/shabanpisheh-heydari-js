@@ -1,1 +1,1 @@
-we are a teammate in web designer web
+we are a teammate in web designer class
